@@ -12,4 +12,4 @@
 
 ## Discord : wikiJoseph#1735
 
-## Wechat :
+## Wechat : ![vx](https://github.com/wikijoseph/wiki-tools/blob/main/vx.jpg)
