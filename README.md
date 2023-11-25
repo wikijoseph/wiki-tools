@@ -8,7 +8,8 @@
 
 欢迎互相交流学习。
 
-[TG]:https://t.me/wikijoseph
-[Discord]:wikiJoseph#1735
+## TG:   https://t.me/wikijoseph
 
-[Wechat]:
+## Discord : wikiJoseph#1735
+
+## Wechat :
